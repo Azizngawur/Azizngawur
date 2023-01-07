@@ -14,7 +14,7 @@
    - NOTHING
    - NOTHING
  #### 2. [SMA MUHAMMADIYAH 1 GRESIK](https://smam1gresik.sch.id) | MIPA | GRESIK `2018-2021`
-   - Chief of Rohkris
+   - 
 
 ## Work Experience:
 #### 1. [-](-) | - | - `-`
